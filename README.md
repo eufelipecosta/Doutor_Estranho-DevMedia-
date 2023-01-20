@@ -1,0 +1,1 @@
+# Doutor_Estranho-DevMedia-
